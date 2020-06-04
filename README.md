@@ -1,2 +1,0 @@
-# bilett
-cıtakturuzumbılet
